@@ -18,8 +18,6 @@
 
 ![](https://s2.loli.net/2024/10/14/lBfjxEsGrwiQpUW.jpg)
 
-<!--
-
 
 ## 制冰机30欧
 
