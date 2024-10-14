@@ -20,25 +20,6 @@
 
 <!--
 
-## 烤盘2欧
-
-![](https://s2.loli.net/2024/10/13/dhDUwVqAvSjx7PC.jpg)
-
-## 蛋挞锡箔碗5欧
-
-约70个
-
-![](https://s2.loli.net/2024/10/13/qnkHDG48BudZIJF.jpg)
-
--->
-
-## 电压力锅20欧
-
-![](https://s2.loli.net/2024/10/13/s3nxb5m8MzcIP2q.jpg)
-
-## 滴滤咖啡机15欧
-
-![](https://s2.loli.net/2024/10/13/gPUuDNyM6Jw1sBh.jpg)
 
 ## 制冰机30欧
 
