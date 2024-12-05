@@ -24,7 +24,6 @@ Epson WF-2510 扫描复印一体机，支持WiFi，打印质量有下降
 
 ## 华硕3060Ti
 
-![1383EE5B-DB9C-4102-A438-5D95D92618B8_1_102_o.jpeg](https://s2.loli.net/2024/12/06/6gb1UCEtN2mJPyZ.jpg)
 ![image.png](https://s2.loli.net/2024/12/06/kblMKDNiL1UBSfm.jpg)
 
 
