@@ -26,6 +26,9 @@ Epson WF-2510 扫描复印一体机，支持WiFi，打印质量有下降
 
 ![image.png](https://s2.loli.net/2024/12/06/kblMKDNiL1UBSfm.jpg)
 
+## 烤吐司机5欧 
+
+![9EDA18FB-4B59-4E07-B391-49E4BBC27FCB_1_102_o.jpeg](https://s2.loli.net/2024/12/06/ArhdQI7sGBZ84ni.jpg)
 
 ## 烤架5欧
 
