@@ -21,12 +21,6 @@
   - [二手苹果原装Macbook Pro充电器](#二手苹果原装Macbook-Pro充电器)
 
 
-## 打印机20欧
-
-Epson WF-2510 扫描复印一体机，支持WiFi，打印质量有下降
-
-![1383EE5B-DB9C-4102-A438-5D95D92618B8_1_102_o.jpeg](https://s2.loli.net/2024/12/06/6gb1UCEtN2mJPyZ.jpg)
-
 ## 华硕3060Ti
 
 ![image.png](https://s2.loli.net/2024/12/06/kblMKDNiL1UBSfm.jpg)
@@ -87,11 +81,6 @@ USB - C 转 ：DP、网卡、USB
 <img src="https://s2.loli.net/2022/03/30/ecnYsARZtl9Up1V.png"  width="100%" height="100%" />
 <img src="https://s2.loli.net/2022/03/30/HBDr9xzmeudjhOK.png"  width="100%" height="100%" />
 
-## 二手华硕AC86U路由器
-
-现价20欧元
-
-![](https://i.loli.net/2021/06/01/5xKlk3gtZ2baio1.jpg)
 
 ## 二手苹果原装Macbook Pro充电器
 
