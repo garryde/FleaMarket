@@ -5,7 +5,7 @@
 
 ![739152151972862144](https://i.loli.net/2021/03/06/1KDWgSXwksUfPt9.jpg)
 
-
+  - [苹果Homepod一代](#苹果Homepod一代)
   - [华硕3060Ti](#华硕3060Ti)
   - [烤吐司机5欧](#烤吐司机5欧)
   - [烤架5欧](#烤架5欧)
@@ -19,6 +19,9 @@
   - [希捷 狼盘 企业级NAS专用](#希捷-狼盘-企业级NAS专用)
   - [二手苹果原装Macbook Pro充电器](#二手苹果原装Macbook-Pro充电器)
 
+## 苹果Homepod一代
+
+![image.png](https://s2.loli.net/2024/12/08/clviXAbjFh4KMIH.png)
 
 ## 华硕3060Ti
 
